@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mlemlody
-- 📫 How to reach me, discord. nuxtjs
+- 📫 How to reach me, discord. mellygellyomfg
 - 😄 Pronouns: she/it
 - ⚡ Fun fact: im still working at cathook 
 

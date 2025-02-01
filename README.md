@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mlemlody
-- 📫 How to reach me, discord. mellygellyomfg
+- 📫 How to reach me, discord. gellyomfg
 - 😄 Pronouns: she/it
 
 <!---

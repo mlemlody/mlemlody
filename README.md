@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mlemlody
-- 📫 How to reach me, discord. smallpuppygirl
+- 📫 How to reach me? discord. smallpuppygirl
 - 😄 Pronouns: she/it
 
 <!---
